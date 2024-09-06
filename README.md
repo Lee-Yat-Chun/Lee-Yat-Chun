@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Lee-Yat-Chun
+- 👀 I’m interested in Computers!
+- 🌱 I’m currently learning Information and Communications Technology.
+- 💞️ I’m looking to collaborate on something.
+- 📫 How to reach me: please no
+- 😄 Pronouns: he
+- ⚡ Fun fact: im here
